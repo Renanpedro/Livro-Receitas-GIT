@@ -6,3 +6,5 @@ Olá! Bem vindo ao meu livro de receitas:wave:
 
 - Peixe Assado :fish:
 
+- C​a​f​é​ :coffee:
+
